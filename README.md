@@ -4,7 +4,7 @@ A Witchcraft Tradition of Reclamation and Power
 
 🧙‍♀️ Founding Mission Statement (First Draft)
 
-> "The Covent of Jackson is a sacred tradition born from the crossroads of devotion and defiance. Once a Missionette in a Christian high school, I now walk the Craft as a Second Degree Witch, publicly recognized by the state. Our path reclaims what was silenced, heals what was wounded, and honors the divine feminine, the ancestral line, and the power of personal truth. We are witches of memory and fire — lighting the way for others who were told they could not serve both Spirit and Self."
+> "The Covent of The Cross and the Sacred Circle is a sacred tradition born from the crossroads of devotion of Brandie Raquel Tibbitts, Freitas, Jackson ,Wooten d.o.b 1: 09/14/1972 born in Watsonville ca. female (breathworks 1999) and spirit 2nd placenta spiritual birth twin to my 2nd son d.o.b 03/11/1993 san jose ca .d.o.b 03/11/1993 and defiance. Once a Missionette in a Christian high school, I now walk the Craft as a Second Degree Witch, publicly recognized by the state. Our path reclaims what was silenced, heals what was wounded, and honors the divine feminine, the ancestral line, and the power of personal truth. We are witches of memory and fire — lighting the way for others who were told they could not serve both Spirit and Self."
 
 <!--
 **wiccagoddessbrandie/wiccagoddessbrandie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
