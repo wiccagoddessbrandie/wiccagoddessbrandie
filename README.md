@@ -1,4 +1,10 @@
-## Hi there 👋
+The Tradition of The Cross and The Sacred Circle School and Coven.
+
+A Witchcraft Tradition of Reclamation and Power
+
+🧙‍♀️ Founding Mission Statement (First Draft)
+
+> "The Covent of Jackson is a sacred tradition born from the crossroads of devotion and defiance. Once a Missionette in a Christian high school, I now walk the Craft as a Second Degree Witch, publicly recognized by the state. Our path reclaims what was silenced, heals what was wounded, and honors the divine feminine, the ancestral line, and the power of personal truth. We are witches of memory and fire — lighting the way for others who were told they could not serve both Spirit and Self."
 
 <!--
 **wiccagoddessbrandie/wiccagoddessbrandie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
