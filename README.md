@@ -1,4 +1,4 @@
-The Tradition of The Cross and The Sacred Circle School and Coven.
+The Tradition of The Cross and The Sacred Circle School The Cross the Sacred Circle Coven.
 
 A Witchcraft Tradition of Reclamation and Power
 
