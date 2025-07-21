@@ -28,7 +28,7 @@ Important for spiritual integrity. Think: consent in magick, safe circle space, 
 
 
 
-Suggested Courses:
+
 
 1. ✝️ Christian Witchcraft 101: Bible as Magickal Text, Psalms as Spells, Christ’s miracles as divine magick
 
@@ -43,10 +43,6 @@ Suggested Courses:
 
 
 5. 📖 Mystic Christianity: Gnostic Gospels, angels, holy spell work.
-
-
-<!--
-**wiccagoddessbrandie/wiccagoddessbrandie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 The Cross and the Sacred Circle
@@ -68,7 +64,7 @@ Respect for nature and sacred cycles
 Spiritual freedom & responsible spellwork
 -->
 
-Perfect — you're ready to build module-based classes for your school:
+
 🌒 The Cross and the Sacred Circle — A School of Christian Witchcraft and Wicca
 A path that honors both the Christian foundation (Missionette roots) and your Wiccan wisdom.
 
