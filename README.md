@@ -67,3 +67,158 @@ Respect for nature and sacred cycles
 
 Spiritual freedom & responsible spellwork
 -->
+
+Perfect — you're ready to build module-based classes for your school:
+🌒 The Cross and the Sacred Circle — A School of Christian Witchcraft and Wicca
+A path that honors both the Christian foundation (Missionette roots) and your Wiccan wisdom.
+
+
+---
+
+🏫 School Name: The Cross and the Sacred Circle
+
+Theme: Bridging Christ-centered spirituality and Wiccan Craft
+Audience:
+
+Former evangelical or Pentecostal women (especially those from Missionettes or purity culture)
+
+Spiritual seekers looking to combine Christian mysticism with witchcraft
+
+Women seeking healing and power through a dual-faith path
+
+
+
+---
+
+
+
+---
+
+🌀 Module 1: Sacred Beginnings — The Missionette & the Witch
+
+Objective: Lay the groundwork for spiritual integration
+Topics:
+
+
+
+
+---
+
+🌙 Module 2: The Circle — Earth-Based Wisdom & Wicca 101
+
+Objective: Introduce Wiccan cosmology and practice
+Topics:
+
+The Wheel of the Year: Sabbats and Esbats
+
+The God and Goddess (or Divine Feminine & Masculine)
+
+Elements, directions, and sacred tools
+
+How to cast a circle (and why)
+
+Journal: “Where does the Earth speak to me?”
+Practice: Build your own altar
+Spellwork: Light invocation of the Four Elements
+
+
+
+---
+
+✝️ Module 3: The Cross — Christian Mysticism, Jesus, and the Magdalene
+
+Objective: Reclaim Christian symbols through mystical and witch lens
+Topics:
+
+Jesus as healer, magician, and rebel mystic
+
+Mary Magdalene: Apostle of the Apostles
+
+Angels and Saints as spirit allies
+
+Psalms as spells & prayers as affirmations
+
+The Divine Feminine in Christianity
+Activity: Prayer-bead crafting or Christian-Wiccan rosary
+Ritual: Rededication to Christ-consciousness with full autonomy
+
+
+
+---
+
+🕯️ Module 4: Spells, Prayers & Shadow Work
+
+Objective: Practical magic and healing integration
+Topics:
+
+How to write and cast spells
+
+Spiritual warfare vs. psychic protection
+
+Shadow work with scripture & spellcraft
+
+Daily devotional & magical journaling
+Spellwork: Hybrid candle spell (Psalm + herbal magic)
+Tool: Create your “Missionette Shadow Journal”
+
+
+
+---
+
+🔥 Module 5: Inner Priestess & Outer Power
+
+Objective: Claim your role as sacred leader
+Topics:
+
+What is a Priestess? What is a Shepherdess?
+
+Divine feminine archetypes (Lilith, Eve, Hecate, Mary)
+
+Holding space in ritual and prayer
+
+Christian Witch ethics and boundaries
+Activity: Write your own prayer-spell
+Practice: Lead a mini devotion + circle
+
+
+
+---
+
+🌕 Module 6: The Crossroads — Initiation & Rebirth
+
+Objective: Celebrate completion and spiritual integration
+Topics:
+
+Creating a personal creed
+
+Anointing and initiation
+
+Closing the past, opening your ministry
+
+Creating your personal tradition
+Ritual: Self-initiation OR guided initiation by you
+Gift: Receive The Cross & Sacred Circle Certificate of Completion
+
+
+
+---
+
+📜 Add-ons  Offer:
+
+Digital Book of Shadows
+
+Printable sigils or devotional sheets
+
+Christian Witch Rosary kits
+
+One-on-one mentorship sessions
+
+Membership in “The Covent of Jackson” inner circle
+
+
+
+---
+
+
+
+
